@@ -6,4 +6,4 @@
 - **Solana:** ```Fjg9zaWuieqFdcVrBTRTap9SrTxEptoHSSn5EMorRDXX```
 
 
-### [Telegram канал](https://t.me/+nXUk0aZ0valjYmFi)
+### [Telegram канал](https://t.me/crypto_imposter)
